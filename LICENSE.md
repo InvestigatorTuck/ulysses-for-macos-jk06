@@ -1,4 +1,4 @@
-
+Get the ultimate Ulysses for macOS extension with Ulysses for macOS best Extension - custom shortcuts and version history. Featuring custom shortcuts and version history, it's the
 
 
 
